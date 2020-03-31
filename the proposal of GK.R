@@ -1,2 +1,2 @@
 proposal
-To 7/7,8
+To July 7th and 8th
